@@ -54,7 +54,7 @@ so you may stop waiting mobile version of karhidish clock and calligraphy apps f
 firstly Google and other western socialists restrict access to victims of russian invasion then russian military themself block tech companies.  
 and they all DO win, you see. they all get what they want --russians get their gory laws appraised and get mustachy looking supersonics while more refined socialists [so-called "democrats"] get their compassion grades and a sense of superiority over rubble post-ukrainian digital natives.  
 being restricted from my native activity of a hacker i am feeling great pain.  
-they say endure your emotional pain for the sake of raped and dying children. pain destroys brain. 
+they say endure your emotional pain for the sake of raped and dying children. pain destroys brain.  
 we remember Bucha!!![^1]
 <p align="center">
   <img width="63%" alt="Therem rem ir Harth Estraven" title="Zera in Georgia Screenshot_20230315-110057" src="https://user-images.githubusercontent.com/98284211/229643005-f39ebb20-dc2e-44dc-b364-ef4b568149ca.png">
