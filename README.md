@@ -51,7 +51,7 @@ i mean it is DEAD.
 Great Snake has died last month.
 
 so you may stop waiting mobile version of karhidish clock and calligraphy apps from me.  
-firstly Google and other western socialists restrict access to victims of russian invasion then russian military themself block tech companies.  
+firstly Google and other western socialists restrict access for victims of russian invasion then russian military themself block tech companies.  
 and they all DO win, you see. they all get what they want --russians get their gory laws appraised and get mustachy looking supersonics while more refined socialists [so-called "democrats"] get their compassion grades and a sense of superiority over rubble post-ukrainian digital natives.  
 being restricted from my native activity of a hacker i am feeling great pain.  
 they say endure your emotional pain for the sake of raped and dying children. pain destroys brain.  
