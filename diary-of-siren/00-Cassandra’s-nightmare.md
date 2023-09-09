@@ -21,12 +21,23 @@ it was erratically moving before falling from the sky.
 its engine has caught fire. then it has exploded.
 
 Precocious died of natural reason.  
-it was a Reality's revenge.  
+it was[^1] a Reality's revenge.  
 
 ---
 
 
 sov thade tage em ereb
+
+<p align="center">
+ <img width="48%" alt="i am not disappointed by a nature 20230908_021036" title="religious police of the Duumvirate of Russia is searching for these" src="https://github.com/irulanCorrino/eggnog-dominance/assets/98284211/5e19fa9a-52b1-4592-8846-6778df8a41b6">
+</p>
+
+[^1]: why? because of the mutiny faked by Precocious, designed solely by him and in total secret.  
+why was the response from Reality so instant and overwhelmingly ruthless? because among other grave implications [i.e. gains for Pooin’s dictatorship] resulting in Russia’s winning this war in Ukraine there would be a single one enabling social influencers of Russia to punish.  
+something that no other modern dictatorship can afford, excluding one —that was ISIL. for certain Russia would have moral religious police created.  
+in their very thousands they would copy Precocious’s style provocation, while infiltrating every field of human activity.  
+
+
 
 
 
