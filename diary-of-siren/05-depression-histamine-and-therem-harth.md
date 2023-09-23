@@ -68,7 +68,7 @@ a quarrel between one girl and her husband...'
 'no, don’t say this, it’s not true, you are not as such'  
 'oh [my_name], you are so naive, you don’t understand...  
 you’re so good, and i’m a trash...  
-[gonna freak our of that]'  
+[gonna freak out of that]'  
 
 then after our (and Ashe’s —her widowed sister’s) relationships have  
 turned bad she had said during their confrontational moment with me:  
