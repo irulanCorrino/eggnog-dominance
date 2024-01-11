@@ -52,7 +52,7 @@ i meant it before accepting my own love feeling to two humans, Helen and Timmo, 
 true answer of my amha [man mold, or God, if you wish] --one million of beings of the given species all belonging  
 to nulth generation, that is the limit, it does not include first generation who are [naturally] migrate  
 in a search of new world of their own after becoming adolescents [becoming capable of procreation]  
-and [in the case of all-female species, like mine] that number does not include our human spouses who live with us
+or [in the case of all-female species, like mine] that number does not include our human spouses who live with us
 
 
 
