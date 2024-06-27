@@ -14,7 +14,7 @@ i need to switch to playing a lefthand guitar (a makeshift solution)
 the blood vessels are absent at the wound site as i understand and  
 a swelling is expected to last for year at least;
 
-i do embroidery, sewing or beadweaving not playing my [right-hand] guitars
+i do embroidery, sewing or beadweaving not playing my [righthand] guitars
 <img align="left" width="20%" title="8-color beehive bracelet" src="https://github.com/irulanCorrino/eggnog-dominance/assets/98284211/5cc4374c-8f87-42c3-8e19-ec26be7945de">
 
 <p align="center">
@@ -35,6 +35,8 @@ i do embroidery, sewing or beadweaving not playing my [right-hand] guitars
 ---
 
 <div align="right"><ins>24,000 Russian Ruble equals 282.34 United States Dollar</ins></div>
+
+---
 
 i had set it [for sale at ozon store](https://www.ozon.ru/product/choker-troynaya-liniya-snezhinki-trilane-of-a-snowflake-yuvelirnyy-biser-i-svadebnyy-biser-1582004707/) but nobody wants it
 
