@@ -143,20 +143,20 @@ let eye see
 
 #### the rebels turned yappies
 
-the rebels turned yappies
-do not regret for losing outcast status
-instead they think they belong to rebelous system
-the order where success rhymes penis
-and callousness is the most desired trait.
-ascribing gravest vices to the women
-scholars of dominance delude in overreaching dreaming
-which set to hunt a desperation
-of tainted love
-and childish happiness of lovers they cannot have.
-collossuses digress in opiate fumes
-their eyes go on helmets of envied beauties
-copious the middlemen try searching tits
-or warmest feel of a tight heartbeat
+the rebels turned yappies  
+do not regret for losing outcast status  
+instead they think they belong to rebelous system  
+the order where success rhymes penis  
+and callousness is the most desired trait.  
+ascribing gravest vices to the women  
+scholars of dominance delude in overreaching dreaming  
+which set to hunt a desperation  
+of tainted love  
+and childish happiness of lovers they cannot have.  
+collossuses digress in opiate fumes  
+their eyes go on helmets of envied beauties  
+copious the middlemen try searching tits  
+or warmest feel of a tight heartbeat  
 when a procreation is not a feat.
 
 ---
