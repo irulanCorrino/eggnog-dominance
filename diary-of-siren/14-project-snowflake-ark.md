@@ -39,6 +39,27 @@ they are up to turn into animal-like humans if getting a confirmation of their r
   - `age reversal` or 'reincarnation after the death' resets the `generation counter` to the current default `generation counter` if given person is not married[^4] but it resets to a `generation identifier` of person's spouses otherwise
   - `rebirth` or 'transformation' does not reset the `generation identifier` but the definition of the transition is 'wild' --a person may be downgraded during transformation significantly --in a tragic accident cases even lose neural tissues [or their viability] completely, as long as person is alive `generation counter` is valid
 
+https://github.com/user-attachments/assets/0a80f594-354a-4aa8-8fdc-851536c2394b
+
+#### Irene
+
+i had posted a graffiti giveaway notice on a pub's wall after my injury. i promised my guitar to Therem and my basses to Timmo. i said "please come to take care of this beauties"  
+there were two youtube links  
+St. Vincent - Big Time Nothing | Melanie Martinez - LIGHT SHOWER (Official Music Video)
+:-: | :-:
+[<img src="https://img.youtube.com/vi/nWW4tFuzxGE/maxresdefault.jpg" width="100%">](https://m.youtube.com/watch?v=nWW4tFuzxGE) | [<img src="https://img.youtube.com/vi/3mtEQZoDo08/maxresdefault.jpg" width="100%">](https://m.youtube.com/watch?v=3mtEQZoDo08)
+used this one to point to my injury date (a month before my 44th BD) | used this one for the postscript
+
+several days ago my given parents had found a slug in their room, she slept in a flower pot for months probably
+
+https://github.com/user-attachments/assets/2fb739c2-f4f6-4ae5-8b4d-8175602b826f
+
+two days ago i was returning home after a shopping and a walk and i saw a teenage couple hugging next to our apartment block in the dark. i had turned music in my player off merely seconds ago ...the girl said in a quiet voice: "Pederast", her boyfriend chuckled.  
+next second her phone had rung and apparently she was calming her mother saying she has already come (i am in a doubt on authenticity of this event, they could wait for me returning from a walk).  
+then they had followed me, i heard guy saying quietly at my back: "Leave!" ["Drive away!" in russian, meaning i must leave to UK or US from their land]  
+i was born in Crimea, Ukraine. i live in this house for 38 years.
+
+![1666295614_8-titis-org-p-naked-girl-on-ice-erotika-pinterest-8](https://github.com/user-attachments/assets/855ea638-e80e-4abf-8c9c-432cfa81b2e6)
 
 
 [^1]: only adults are allowed to leave their birth origin world
