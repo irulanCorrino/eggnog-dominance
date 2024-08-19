@@ -61,6 +61,26 @@ i was born in Crimea, Ukraine. i live in this house for 38 years.
 
 ![1666295614_8-titis-org-p-naked-girl-on-ice-erotika-pinterest-8](https://github.com/user-attachments/assets/855ea638-e80e-4abf-8c9c-432cfa81b2e6)
 
+#### Ariadne
+
+[<img src="https://img.youtube.com/vi/QuKXbEB7bUI/maxresdefault.jpg" width="60%">](https://www.youtube.com/watch?v=QuKXbEB7bUI)
+
+- there are no insides of a black hole
+- what you might call an inside of a black hole are possibilities of existence of all other black holes
+
+[<img src="https://img.youtube.com/vi/d0mt0N5-LLw/maxresdefault.jpg" width="60%">](https://www.youtube.com/watch?v=d0mt0N5-LLw)
+
+- "The command to forget was so great that everyone was separated. They did not remember who they were. The Eagle intended that if they were capable of remembering themselves again, they would find the totality of themselves."
+- "Consider this very carefully; our command becomes the Eagle's command. The old seers paid dearly for that finding." The Dark Sea of Awareness does not command to forget; one choosing an intent to separate from a lover would set up the Reality for catastrophic endings of their lives
+
+## Project 'Snowflake Ark'
+| | |
+:-: | :-:
+[<img src="https://img.youtube.com/vi/oPU8XJcA__k/maxresdefault.jpg" width="100%">](https://www.youtube.com/watch?v=oPU8XJcA__k) | [<img src="https://img.youtube.com/vi/lhJpXouayE4/maxresdefault.jpg" width="100%">](https://www.youtube.com/watch?v=lhJpXouayE4)
+
+
+
+
 
 [^1]: only adults are allowed to leave their birth origin world
 [^2]: `generation` with relative number 0 cannot leave their destination world for a permanent change, it is a rule against hopping the worlds, it applies only to final destination of arks, not to the guest/transit trips, but ark dwellers cannot be in a transit visitor state either (means their hybernation period is never interrupted until the destination is reached, a `no spacemen` rule)
