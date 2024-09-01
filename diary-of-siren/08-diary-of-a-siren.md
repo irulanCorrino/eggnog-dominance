@@ -101,7 +101,7 @@ do not be interested in social recognition
 reject a swinging between secluder and socialite,  
 withdrawn hermit comes to power in a sleep state  
 where social units are patricians procreating violent.  
-ineffectuality of a psychopomp  
+ineffectuality of a psychopump  
 comes a see‑through to wild’s eye  
 it grows aggressively big  
 but they do not see their death  
@@ -161,3 +161,16 @@ when a procreation is not a feat.
 
 ---
 
+
+#### there is the only ship sailing to Winter
+
+there is the only ship sailing to Winter  
+her sail is bigger than the eyes of Messiah  
+Argaven Harge is the Risk Taker of this Ark  
+no more than million females may be reborn  
+in purity of youth as Ynnwn in our home world  
+no other species but human spouses of Ynnwn  
+will be allowed to go with us within  
+Snowflake, childless and in love
+
+---
