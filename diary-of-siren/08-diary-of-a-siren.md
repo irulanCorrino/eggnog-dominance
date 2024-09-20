@@ -174,3 +174,14 @@ will be allowed to go with us within
 Snowflake, childless and in love
 
 ---
+
+
+#### "Gray Sugar" (love spell for Helen and Sun)
+    
+born high, child Ynnwn?  
+mean, art thee a Weaver, girl?  
+refuse to CHOCOLATE, squirl,  
+or you would spill a million of beads.  
+not one or two. not even three.  
+
+---
