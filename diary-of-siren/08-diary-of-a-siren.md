@@ -185,3 +185,24 @@ or you would spill a million of beads.
 not one or two. not even three.  
 
 ---
+
+
+#### i have awaken in a nightmare
+
+i have awaken in a nightmare  
+where no one cared for me  
+and i was so beautiful so beautiful  
+tears of grief and mourning screams  
+all dreams all dreams  
+that you don't see you don't see  
+a moment when the exploit shattered me  
+love never takes me in a nightmare  
+where souls of beloved were spared  
+no one comes to beauty to beautify her  
+they deadly stared as i bleed  
+when love helplessly bleeds in a nightmare  
+that you don't see you don't see  
+all dreams all dreams  
+and i was so beautiful so beautiful
+
+---
