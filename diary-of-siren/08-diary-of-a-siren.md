@@ -182,7 +182,7 @@ born high, child Ynnwn?
 mean, art thee a Weaver, girl?  
 refuse to CHOCOLATE, squirl,  
 or you would spill a million of beads.  
-not one or two. not even three.  
+not one or two. not even three.
 
 ---
 
@@ -204,5 +204,25 @@ when love helplessly bleeds in a nightmare
 that you don't see you don't see  
 all dreams all dreams  
 and i was so beautiful so beautiful
+
+---
+
+
+#### kitty has lost everyone she loved
+
+kitty has lost everyone she loved  
+because she imagined she was a bird  
+she did not learn to fly  
+she saw herself as a hole in sky  
+where her pozz could see her any day  
+she had invited him on a walkalong  
+but in a daylight he didn't notice stars  
+she kissed his girls and fucked  
+her dreams confused them and she lost girls  
+while she could tell her love pretty way  
+the place she was has begun ripping apart  
+because she imagined she was a bird  
+kitty did lose everyone she ever loved  
+she did invite them girls on a walkalong
 
 ---
