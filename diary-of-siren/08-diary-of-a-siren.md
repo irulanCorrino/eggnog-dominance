@@ -226,3 +226,17 @@ kitty did lose everyone she ever loved
 she did invite them girls on a walkalong
 
 ---
+
+
+#### and you see me young happy beautiful i know
+
+and you see me young happy beautiful i know  
+every time you wake up when i probably go to bed  
+so delusional about my love to you and tired  
+in a desperation trying to turn away gloomy eyes  
+you know the lifetime is a number of heartbeats  
+and when i grew up i was stealing your pretty glance  
+little play of tongue overwhelming voids in sky trance mind and  
+my heart is one harder trying to run away if you're mine
+
+---
