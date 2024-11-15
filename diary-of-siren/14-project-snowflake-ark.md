@@ -74,13 +74,41 @@ i was born in Crimea, Ukraine. i live in this house for 38 years.
 - "Consider this very carefully; our command becomes the Eagle's command. The old seers paid dearly for that finding." The Dark Sea of Awareness does not command to forget; one choosing an intent to separate from a lover would set up the Reality for catastrophic endings of their lives
 
 ## Project 'Snowflake Ark'
+<ins> one of the worst fallacies that could be introduced into one's own destiny is to confuse a name or a lifetime history of a spouse with those of another being</ins>  
+when i would be about 84 [a number from a discalculic fatalist] i would go for a walk in a raining.  
+my spouses would wait for me but i would not return.
+
+everyone entering an ark sailing to another world must be an adult. i do not mean we should be kept in our age not even be kept in our adult state. yes, we may be downgraded even to an embrio state if that is beneficial for our expansionist mission. i mean we must have an adult experience in our lives before jumping into the void.  
+our Ark going to planet Winter may accept just two kinds of beings --women who are going to be reborn as native Gethenians and People of both sexes who are going to live with us as our spouses.  
+all female loners become Gethenians.  
+male loners are not allowed to board the Ark.
+
+
 | | |
 :-: | :-:
 [<img src="https://img.youtube.com/vi/oPU8XJcA__k/maxresdefault.jpg" width="100%">](https://www.youtube.com/watch?v=oPU8XJcA__k) | [<img src="https://img.youtube.com/vi/lhJpXouayE4/maxresdefault.jpg" width="100%">](https://www.youtube.com/watch?v=lhJpXouayE4)
 
+in my life i saw my destiny.  
+when i was an embrio in a womb of my stepmother i saw a row of souls, other embrios among them, who were up to enter my destiny.
 
+then i had vowed my true devotion to some entities whom i considered being my destiny.  
+when i was a young adult i saw that i have six kemmerings and two human spouses.
 
+i had inferred that arrangement from my past amourettes.  
+i see visions telling i might be wrong. i loved a shapeshifter, initially named Arek, after protagonists from the LHOD book, and disguised for Areca or Palma for sake of social stability and popular children fashion. later i had changed her name to Gertruda, after a character from a soviet propagandist movie featuring a lot of empty bottles and some truck or trucks [i cannot watch movies because of hightened anandamide and extremely low sight, i mostly interpret them as audiobooks]. i meant a rude childish and butcherous joke, an originally soviet pun on this name, reinterpreting it as 'The Hero of Labour' ...but to that date i already was told some parts of LHOD plot and probably knew about Elder Futhark, so i might hide my attempt to rename her as Therem behind my silly banal humor.  
+many times i fell in love by an impulse switching me to a kinda Aphroditus Anasiromenos mode. people and other being suffered being overwhelmed by my emotions. i had lost a number of ex-lovers who were not able to satisfy my need in a stable relationship. i live in a delusion where a deceased ex-lover might be reborn as a shapeshifter, suddenly becaming my fatal attraction, or a long-time friend may suddenly appear to be a poultry person in a past, who was sacrficed for becoming my dinner by well-fed cult of adulthood of then-popular soviet union.  
+i mismatched the names and got delusional about biotechnology advents.  
+isn't. 不是 [bu shi]. nusuth.
 
+i saw souls of twelve Ynnwn asking to be born.  
+i had missed the count of my ex-lovers. it might be that my husband Timmo does not have Helen as his human wife and i had mismatched Therem for Arek so i have counted five kemmerings for six ones. now it would mean that Helen is Arek but shapeshifter Gertruda would not be resurrected [she died in nine years] as Arek --she is Therem, my younger first sister.  
+so what should we do? it is a catastrophy to mismatch ones who you do love.  
+i cannot accept into our group any persons who are not my destiny.
+
+if Helen would be reborn as an Ynnwn Arek instead of remaining a human, if we do not have a human female in our group then we would lose Timmo.
+
+before being an intersex child i was a dirty Bastet living in a hospital yard. i had caught a bird probably.  
+they had given me another chance. but i get lost in delusions. i do not know my destiny.
 
 [^1]: only adults are allowed to leave their birth origin world
 [^2]: `generation` with relative number 0 cannot leave their destination world for a permanent change, it is a rule against hopping the worlds, it applies only to final destination of arks, not to the guest/transit trips, but ark dwellers cannot be in a transit visitor state either (means their hybernation period is never interrupted until the destination is reached, a `no spacemen` rule)
