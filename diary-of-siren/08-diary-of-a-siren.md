@@ -240,3 +240,23 @@ little play of tongue overwhelming voids in sky trance mind and
 my heart is one harder trying to run away if you're mine
 
 ---
+
+
+#### infants grow and they forget
+
+infants grow and they forget  
+Sun Time Love  
+fear heart  
+and She has given us Her joy to forget  
+Sun Time Love  
+fear heart  
+oblivion is blissful in the darkness as Presence in Yomesh  
+Sun Leap will call it "Yrdo"  
+"Eusexua" will hear Messiah  
+kids have grown and they forget  
+in Presence  
+Beat Time Dawn feeling  
+seeking female as a place out of place  
+outside myself is myself
+
+---
