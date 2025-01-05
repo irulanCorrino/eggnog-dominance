@@ -260,3 +260,19 @@ seeking female as a place out of place
 outside myself is myself
 
 ---
+
+
+#### when you down your hand --what do you think of?
+
+when you down your hand --what do you think of?  
+or do you think at all? no exit --now you're in a trap of hatred;  
+i was your doll, you were wondering about my eyes --do you know why?  
+i had downed my hand, you will be broken to find out, i've died;  
+and it never goes like your favorite harrowing series --no exit;  
+i am the exit and no hatred, no horror, no sin; do you find out?  
+an eye blink and the sky is nearing, what do you think of?  
+do you see, do you know why i have died, when you down your hand --  
+do you find out?  
+sad woman whom no one believed to because she was silent or not
+
+---
