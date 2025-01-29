@@ -276,3 +276,29 @@ do you find out?
 sad woman whom no one believed to because she was silent or not
 
 ---
+
+
+#### after the slavery the segregation always come
+
+after the slavery the segregation always come  
+and i remember the bird that had shown me the stars  
+she was so violent and ruthless covered in shade  
+oh i wish to be in those flowers with her again  
+your great desire for loneliness will bring you to the deep  
+my place where no one breathes where is no turning back  
+no i cannot paint them white —they were slaves like me  
+we were seeking stars at nights not sleeping in full black  
+they lost my bird.  
+next morning i refused them in a dismay  
+your anger cannot be a hatred leading steps  
+your ladder is folding down and down array  
+your confusion breaks through the deathbed  
+no words  
+the universe's forbidden self‑expression  
+when stars are folding back and back  
+into your eyes where is no more flowers  
+you hear singing  
+she is me  
+inviting you to the oblivious
+
+
