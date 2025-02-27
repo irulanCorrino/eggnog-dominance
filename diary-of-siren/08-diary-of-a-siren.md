@@ -301,4 +301,24 @@ you hear singing
 she is me  
 inviting you to the oblivious
 
+---
+
+#### i'll give you this what does not belong to me
+
+"i'll give you this what does not belong to me  
+something to comfort the boldest dream of yours;  
+i'll teach you the truth of ordinary mindset  
+a lived through routine preparing you to hardships;  
+you'll see the future of the bright in workshare  
+where they know exactly what is yours and when."  
+take me there --where the nightmares come from --i'll be your dusk  
+forever waiting, blended into air, no meaning for the gruesome rust  
+what are they asking you for? your time. what are they paying with?  
+dust.  
+i can give you more dust than promised by authorities of last chance win  
+your time is endless and in the dark is your blood the stars you have been  
+be real now  
+fuck
+
+---
 
