@@ -303,6 +303,7 @@ inviting you to the oblivious
 
 ---
 
+
 #### i'll give you this what does not belong to me
 
 "i'll give you this what does not belong to me  
@@ -322,3 +323,28 @@ fuck
 
 ---
 
+#### unnamed to Love
+at the grieving lawn remain defiled and slaughtered  
+all the world prophets  
+the vision gets miniaturised and printed  
+as an amusement token  
+the happy little green square the copy of itself  
+holding the grief contained and long figures in black robes  
+world's love being stuck onto the gossiwor of visionary  
+
+the room is freed after students stop hating or consoling  
+and become all‑consumed the urge of flock  
+out there is the storm is setting off in a silent rage  
+and kids have run to the bus stop  
+the leftwardern wind pours the rain onto the trees  
+a maid returns to say the last i loved you.  
+with all the giggles and sighs of girls denied the affair  
+her garment is soft and fancy but the haunted hood is empty  
+they make a smirk and think we'd decapitated your love  
+and in these visions getting forked there is long lost lover  
+or empty hood filled with a sorrow then overdone  
+at last they are drawing an empty dish and a spoon and laugh  
+at last she has kissed me  
+the sneaky lasses are stealing my kiss in a lustful desperation
+
+---
