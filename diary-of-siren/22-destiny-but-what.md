@@ -1,5 +1,5 @@
 there is a misfortune in my group.  
-i had lost all my ex-lovers. i mean, i don't even know how they are now.  
+i had lost all my ex-lovers. i mean, i don't even know who they are now.  
 maybe some of them cheated on me. i do not want to listen to those projected hateful gazes.
 
 i had a destiny. i need eight spouses to make my group.  
