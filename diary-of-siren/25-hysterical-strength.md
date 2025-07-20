@@ -9,7 +9,7 @@ What?!
 Yes
 
 it has begun long ago  
-pyramids in Egypt were lined with sheets of copper ...with the [probably]] first discovered semiconductor on them
+pyramids in Egypt were lined with sheets of copper ...with [probably]] the first discovered semiconductor on them
 
 they worshipped electricity  
 and then radio  
