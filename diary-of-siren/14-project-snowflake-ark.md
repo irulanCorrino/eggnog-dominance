@@ -112,6 +112,24 @@ if Helen would be reborn as an Ynnwn Arek instead of remaining a human, if we do
 before being an intersex child i was a dirty Bastet living in a hospital yard. i had caught a bird probably.  
 they had given me another chance. but i get lost in delusions. i do not know my destiny.
 
+## DNA mods and random findings
+
+#### random findings
+
+1. these are my 'speculations' and do not require a repair
++ i cannot feel physical pain but i feel a damage; the level of pain may indicate an extent of the damage
++ 
+2. these findings may be issues to fix
++ many functions are expressed to a different extent of nuance if considering lateral symmetry: my right eye has significally greater myopia but i am not going to treat it as a malfunction, however my right hearing organ has lower sensitivity than my left one and this is a serious vulnerability for a person using mostly hearing sense for spatial orientation, in additioon it impairs my perception of music and my performance, so it must be a subject for improvement
++ 
+
+
+#### 'i'm all the ancestors'
+if considering a biotechnical rebirth of certain persons and they are up to become a new biological species then there must be 'a test subject'. i may be a person to test all the new versions of the DNA at for my new biological species and after successfully developing this new DNA it will be forked to all other members of my species, the 'zeroth generation' of it.  
+it would take quiet noticeable amount of time however, but in an induced sleep it will not impact my sense of self-nature (i do not use term 'integral self' because nagualism rejects normalisation of 'un-interrupted self' as a a fake construction of parasitic mind). probably this time might be used for preparations to the interstellar travel (finding the candidate planets, building the Ark), or instead the tests and subsequent rebirths might be conducted onboard of the Ark while on a route of searching planet Gethen.  
+as for my opinion, the research on DNA rewrite done exclusively on tissue cultures or organ mock-ups, or exclusively via computer simulations of some kind seems to be inefficient and even prone to mistakes.  
+and, as i already told, i would agree to be downgraded to the single cell, as an intermediate stage of such DNA rewrite, if such downgrade stage is an unavoidable part of the process that is needed for the survival of organic life. certainly that is kinda hard sci-fi scenario, very distant from real-world science. learn to code, folks!
+
 [^1]: only adults are allowed to leave their birth origin world
 [^2]: `generation` with relative number 0 cannot leave their destination world for a permanent change, it is a rule against hopping the worlds, it applies only to final destination of arks, not to the guest/transit trips, but ark dwellers cannot be in a transit visitor state either (means their hybernation period is never interrupted until the destination is reached, a `no spacemen` rule)
 [^3]: if there is a need to recalculate relative `generation` tables for several `generation identifier` values transferred with an ark to the destination world then the function follows the same `no offset` rule relating all calculations to the nearest common ancestor world for both arks
