@@ -81,7 +81,7 @@ my spouses would wait for me but i would not return.
 everyone entering an ark sailing to another world must be an adult. i do not mean we should be kept in our age not even be kept in our adult state. yes, we may be downgraded even to an embrio state if that is beneficial for our expansionist mission. i mean we must have an adult experience in our lives before jumping into the void. any child who is not erotically involved with a lesbian cannot go with us. a female child might be a loner but still be involved with a lesbian --that is, with God.  
 our Ark going to planet Winter may accept just two kinds of beings --women who are going to be reborn as native Gethenians and People of both sexes who are going to live with us as our spouses.  
 all female loners become Gethenians.  
-irrelevant to us, lesbians, humans cannot board the ship.  
+if irrelevant to us, lesbians, humans cannot board the ship.  
 male loners are not allowed to board the Ark.  
 female-male couples are not allowed to board the Ark.
 
