@@ -348,3 +348,48 @@ at last she has kissed me
 the sneaky lasses are stealing my kiss in a lustful desperation
 
 ---
+
+#### Blue Scout
+
+it's unconceivable intent to me —to let my sisters down  
+when words are said in a vain, like if they solely were me  
+the hopes are broken and we stay behind flashback rebound
+
+the Darkness. and regrets of broken past. i stay alive.  
+otherwise i would have died, the words are not the weapons, see?  
+__  
+galaxy on a kitchen  
+galaxy on a run  
+let us touch one another  
+in your eyes i'm blind  
+turn round the corner  
+star bloom is pitching fonding
+
+---
+
+#### Tardive Chorea
+
+atheists worshiping BOTOX printer  
+i am passing them by but she is obsessed with Moscow  
+the pattern is always the same  
+ —they buy into the shit spread by alpha males  
+monogamous conduct for you, polygamous and promiscuous for them
+
+she does her subservile mutiny against me because guys  
+in a fridge told her she is treated like my property  
+no travels, no brothels, no clubs —all her life is wasted on me  
+she wakes up and goes to college because she may meet me there  
+she turns on her sex simulation and finds herself making a call  
+she does things because they are prescribed  
+males from other fridges appoint a date and she easily agrees  
+they told her she may become a prostitute if she chooses to
+
+guys from a fridge have stuck in a wake up loop but i am not stopping  
+i am going to a different place, i am a loner
+
+they wake up and turn their news on and the pattern is always the same  
+the news are frozen, they are slow like a waste furnace  
+they are excruciatingly stuck  
+can anyone of you notice that?
+
+---
