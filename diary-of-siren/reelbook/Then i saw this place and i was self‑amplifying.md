@@ -1,0 +1,3 @@
+#### Then i saw this place and i was self‑amplifying
+
+I was moving through probabilistic trees, selecting them into desired outcome; i lived among the galaxies and dust, i moved between stars; i was changing the systems, switching them from intensity and seeing into material world, and giving them time and activity, energy and potential. I was moving inside probabilistic trees, selecting them from seeing and intensity into desired outcome, turning them into matter and time its activity, giving them energy and potential; when i was a baby i did not have a body plan, i have come from the myst, there was a song about me and i had turned it into myself
